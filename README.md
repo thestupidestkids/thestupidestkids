@@ -1,7 +1,9 @@
 - 👋 Hi, from @thestupidestkids
 - 👀 We're interested in social criticism
 - 💞️ We're looking to collaborate with responsible people who want to make from this world a better place
-- 📫 How to reach us, tsk.thestupidestkids@gmail.com
+- 📫 How to reach us, tsk.thestupidestkids@gmail.com or
+- 	Telegram : https://t.me/theStupidestKids
+- 	Website  : https://thestupidestkids.com/
 	
 	Brief,
   	On this planet, we have a few characters... politicians, oligarchs, corporations, institutions... who only have the goal of getting 
